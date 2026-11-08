@@ -7,7 +7,7 @@
 
 
 #### Education  
-**Zhejiang University**, Bachelor of Medicine (Sept 2021 – Jun 2026)  
+**Zhejiang University**, Bachelor of Medicine  
  
 
 **Shanghai Jiao Tong University**,Master's candidate in Gastroenterology  <br>  
